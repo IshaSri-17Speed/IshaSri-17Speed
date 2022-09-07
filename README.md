@@ -1,6 +1,6 @@
 ### Hi there friends 👋
 
-this is my twitter account[@Ishaa_twt](twitter.com)
+this is my twitter account [@Ishaa_twt](twitter.com)
 
 
 <!--
