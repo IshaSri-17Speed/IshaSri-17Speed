@@ -1,5 +1,8 @@
 ### Hi there friends 👋
 
+this is my twitter account[@Ishaa_twt](twitter.com)
+
+
 <!--
 **IshaSri-17Speed/IshaSri-17Speed** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
