@@ -1,5 +1,6 @@
 ### Hi there friends 👋
-
+ ![ISHA BHARDWAJ](https://github.com/user-attachments/assets/d7c22fa4-9eb0-471b-8fe7-a78273328731)
+ <p><a herf = "https://x.com/Ishaa_twt"><img src="https://img.shields.io/badge/twitter-%231DA1F2.svg?&style=for-the-badge&logo=twitter&logoColor=white" height=25></a></p>
 
 
 <!--
